@@ -1,1 +1,1 @@
-# AI
+https://chatgpt.com/
